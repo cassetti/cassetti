@@ -9,3 +9,5 @@ I'm dissociative and sometimes my other parts front. If they do, SOMETIMES it'll
 I wander around a lot. Usually I chill at spawn, docks, or the PM corner when it's active.
 
 I've never touched TikTok and I've been on here since March 2017 so I don't really know where these new kids are coming from or what the hot new trends are.
+
+Sometimes, I'll get shy and leave if I'm approached. It's never anything personal!
