@@ -4,7 +4,7 @@ Also, I'm always on the 18+ server. I don't like talking to minors.
 
 I hide liberally. If you're here because I hid your friend, usually it's because they were Komaeda (I fucking hate that guy) or another character/ship/source that upsets me. Sorry!
 
-I'm dissociative and sometimes my other parts front. If they do, SOMETIMES it'll say so in their name. It depends on who it is. 
+I'm dissociative and sometimes my other parts front. You will never know if they are.
 
 I wander around a lot. Usually I chill at spawn, docks, or the PM corner when it's active.
 
