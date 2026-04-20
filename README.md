@@ -6,7 +6,7 @@ Fiction can depict whatever and people can do whatever with it, but I am also al
 I also believe that callouts should only be made as a last resort in cases where someone is actively causing danger (no, having done harm in the past as a teenager and merely existing while trying to get better is not actively causing danger) and that harassment/cyberstalking canpaigns do more harm than good. 
 Obsessing over people who hurt you in the past will not make you feel better. 
 
-While I dislike fandom spaces, I do have some things I enjoy with friends such as Nintendo and FFXIV. 
+While I dislike fandom spaces, I do have some things I enjoy with friends such as Nintendo, Danganronpa, and FFXIV. 
 
 I hide liberally. If you're hidden it's likely becuase you're in the Project Moon fandom and 99% of Project Moon fans make me extremely mad.
 
