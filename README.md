@@ -4,9 +4,9 @@ I'm dissociative and despise "syscourse" because I am an adult. Please grow up i
 
 Also, I'm always on the 18+ server. I don't like talking to minors.
 
-I hide liberally. If you're here because I hid your friend, usually it's because they were Komaeda (I fucking hate that guy) or another character/ship/source that upsets me. Sorry!
+I hide liberally. If you're hidden it's likely becuase you're in the Project Moon fandom. 
 
-I wander around a lot. Usually I chill at spawn, docks, or the PM corner when it's active.
+I wander around a lot. Usually I chill at spawn or docks.
 
 I've never touched TikTok and I've been on here since March 2017 so I don't really know where these new kids are coming from or what the hot new trends are.
 
