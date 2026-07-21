@@ -1,4 +1,4 @@
-Heya. I'm Void. Autistic chronically ill system.
+Heya. I'm Void. Autistic mentally & chronically ill system.
 
 Just some info first so you can hide me and curate your experience if necessary: 
 I don't care about ship discourse in any way but I'm very uncomfortable with lolisho and zoophilia/bestiality. 
@@ -6,7 +6,7 @@ Fiction can depict whatever and people can do whatever with it, but I am also al
 I also believe that callouts should only be made as a last resort in cases where someone is actively causing danger (no, having done harm in the past as a teenager and merely existing while trying to get better is not actively causing danger) and that harassment/cyberstalking canpaigns do more harm than good. 
 Obsessing over people who hurt you in the past will not make you feel better. 
 
-I hide liberally. 
+I hide very liberally. 
 
 I wander around a lot. Usually I chill at spawn or docks. I'm not very talkative and sometimes I'll get shy and leave if I'm approached. It's never anything personal, I'm just paranoid.
 
